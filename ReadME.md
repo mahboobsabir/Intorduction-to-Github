@@ -1,2 +1,2 @@
 # information for Project 
-this is for github working first time
+this is for github working for youtube Channel
